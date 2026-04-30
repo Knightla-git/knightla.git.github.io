@@ -1,1 +1,1 @@
-# knightla.git.github.io
+# BIDA 670 Project- Team 6
